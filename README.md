@@ -1,0 +1,2 @@
+# COPIAR-AVATAR-SCRIPT
+Kkkkkkkkk
